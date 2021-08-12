@@ -1,1 +1,0 @@
-# artirilmis-gerceklik-glbtest5kmfih
